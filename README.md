@@ -1,2 +1,1 @@
-### Hi there 👋
-
+Hello, I'm a concept artist!
